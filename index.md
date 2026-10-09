@@ -1,6 +1,6 @@
 Privacy Policy for ColorSham
 
-Last updated: [October 8, 2026
+Last updated: October 8, 2026
 
 ColorSham is a simple color puzzle game. This Privacy Policy explains what information is collected, how it is used, and what choices you have.
 
